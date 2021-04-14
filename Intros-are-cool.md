@@ -2,7 +2,7 @@
 - ♧ I'm not doing much, but Im trying to learn. Someday I may even start a project
 - ◎ I’m currently learning JavaScript and Java (I also already know some Python)
 - ♧ I’m looking to collaborate on possibly game, but a discord bot would be pretty cool too.
-- ♢ Ive got DA and PMC! DA: Catsmeow231 ♥︎ PMC: LovelyEcho
+- ♢ Ive got DA and PMC! DA: Catsmeow231 ♥︎ PMC: LovelyEcho ~ I also have Discord! Discord: r/That-One-Kid#4618
 
 <!---
 CatUni/CatUni is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
